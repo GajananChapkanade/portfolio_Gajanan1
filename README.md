@@ -1,1 +1,1 @@
-https://github.com/GajananChapkanade/portfolio_Gajanan1
+https://gajananchapkanade.github.io/Portfolio_Gajanan/
